@@ -12,6 +12,8 @@ Privacy Policy for FaydaLik Affiliate Marketing App
 
 - [View Privacy Policy](https://ayoubbenderdouch.github.io/faydaLik_Privacy-Policy/privacy-policy.html)
 - [عرض سياسة الخصوصية](https://ayoubbenderdouch.github.io/faydaLik_Privacy-Policy/privacy-policy.html)
+- [Support & Help](https://ayoubbenderdouch.github.io/faydaLik_Privacy-Policy/support.html)
+- [الدعم والمساعدة](https://ayoubbenderdouch.github.io/faydaLik_Privacy-Policy/support.html)
 
 ## About / حول
 
