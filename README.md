@@ -1,0 +1,1 @@
+# faydaLik_Privacy-Policy
